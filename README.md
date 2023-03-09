@@ -1,4 +1,4 @@
-Cracking Guide 
+<h3>Cracking Guide</h3> 
 Hey, before introduction I must say some words to you. Thanks for checking this e-book, I included there 100% of my cracking skills, 100% of pure knowledge and 100% of basics that you will need to start your journey with cracking. This e-book is mainly for people who are entirely new to cracking. Especially for this e-book, I created a .ZIP file with a collection of programs that are mostly used to crack accounts. I do not want to teach you saturated methods which are worth totally nothing. I will guide you how to get an unlimited number of accounts in like one day. If this e-book helps you, please leave positive feedback on my thread. Remember, this e-book is only for educational purposes. I do not take responsibility for how you use it. I do not like tons of colors, text variations, and stuff, that is why this e-book looks like this. It is basic like it should be. 
  
  
